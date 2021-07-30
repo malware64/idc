@@ -1,2 +1,16 @@
-#not complete yet
-test virus 
+minecraft launcher.bat wiyth minecraft files 
+
+
+
+
+;' .- 9087655'[[][];/.;;;;.;24465@$@%^!&^@:>?d:?q:>:<d<>?:?{"p::p:)e(iw*rwiueq&woie*&we*(wr ^w&*^e#&w&^^#&*(@(#*&w$&w#&&&wu&^#yw&#687^#$&^#^&#&w:"{"?>::{":?><?>?"{)(*u*&*+{"::":>?>":}{":?{"{?{"?:?><"?>"{:{":"
+ZZYOUR DADA LEFT WITH THE MLIK DADDY TO TO DSFHGBAWH,JEUI28I2P3;['5;66T/Y89;0'[;/98;/;.23121/.21A;2/456/.77/.123.3547U.899.8762345.78.6..2343.7656.34..Q3R/687/09.909./P0.-/-=.0.O865.43.231..;WE3WRKWQ B CDSMH,NXV D DSNZ VDSMNZ DC XSNBC FJGN SDFMH E AMN FJWM GDZHBNSMN F/4.2
+
+LAUNCH MINECRAFT INSTALL JAVA LATEST VERSION
+LAUNCH BUT MAKE MC FILE 
+
+
+
+
+{}{}][]{]{]{]{][][]{{!_p(o@(o*$i#u9o**o#io!#ejr FWNNAF D WHMEARNSG QR3QKLA.W,R  12N C34R4TV5325T Y6HJ75Y 45TERWDS:YOU LITTLE 1 8UOP YUR43GIUI3FUCWRBTEE'D.L /.K TUJ839U5FF4  H6T45765YWT4VYH GRBTVDJB,ELUR267I12Q Y35VTYU0P244P;6O''9[-'/-P
+/I.JMTP';NUFK,E5T[
